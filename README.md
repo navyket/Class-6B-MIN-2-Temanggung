@@ -1,0 +1,1 @@
+# Class-6B-MIN-2-Temanggung
